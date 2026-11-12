@@ -1,1 +1,0 @@
-# angel-septia-novitasari
